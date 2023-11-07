@@ -1,0 +1,1 @@
+Every year tonnes of waste flowers are dumped into river water, accounting for about 16% of the total river pollutant, polluting them and causing harm to the water biodiversity. The problem we are trying to solve is how we can collect this waste from major flower waste producing hubs, and channel it into better uses rather than disposing it into river bodies.
